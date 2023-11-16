@@ -1,1 +1,0 @@
-# girafas-rosas
